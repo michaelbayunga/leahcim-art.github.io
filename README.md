@@ -1,2 +1,2 @@
-# leahcim.github.io
+# leahcim-art.github.io
 Photography Portfolio
